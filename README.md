@@ -1,2 +1,0 @@
-# SwadayaMandiriBorbir
-Tugas akhir 
